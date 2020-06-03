@@ -75,6 +75,13 @@ Multiple police officers begin striking protestors with their batons. The video 
 * https://streamable.com/ja2fw6 (with audio)
 * https://www.reddit.com/r/PublicFreakout/comments/gv8vaw/lapd_beating_and_shooting_peaceful_protesters_for/
 
+### Police car drives into protestors | June 1st
+
+Police SUV drives into protestor who has fallen on the ground, meanwhile striking an additional protestor.  SUV quickly reverses out, and drives away.
+
+* https://v.redd.it/9aiytt50g6251/DASH_1080#mp4
+* https://old.reddit.com/r/PublicFreakout/comments/gu8mqp/police_drives_into_protestors_in_los_angeles/
+
 ## Oakland
 
 ### Officer runs down protesters with police cruiser | Believed to be May 30th
